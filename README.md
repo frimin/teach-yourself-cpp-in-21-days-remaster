@@ -2,7 +2,11 @@
 
 ## Watch Online
 
-NONE
+[AcFun](http://www.acfun.cn/v/ac3661188)
+
+[Bilibili](http://www.bilibili.com/video/av10160958/)
+
+[YouTube](https://www.youtube.com/watch?v=0dJPit-AKDU)
 
 ## Source Project
 
